@@ -1,1 +1,1 @@
-ambiar
+paria
